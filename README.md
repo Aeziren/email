@@ -1,6 +1,5 @@
 ## Video Demonstration
 
 
-
-https://github.com/Aeziren/email/assets/123553708/ef2de714-cf97-44b6-840e-949702b1e529
+https://github.com/Aeziren/email/assets/123553708/73c4f773-6c47-40e6-83eb-0aeca0d6a165
 
